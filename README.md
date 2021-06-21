@@ -1,1 +1,1 @@
-#demi-noosphere.github.io
+#yalord96.github.io/demi-noosphere
